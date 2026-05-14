@@ -1,4 +1,4 @@
-#  
+#  Experience anime card clash like never before with anime card clash Scripts secure, the #1 Script. Includes private server access and one-hit kill
 
 
 
